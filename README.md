@@ -1,2 +1,15 @@
-# shenzhen-basechain-trading-co-ltd
-Shenzhen BaseChain Trading Co., Ltd    Profile Contact
+# Shenzhen BaseChain Trading Co., Ltd    
+
+## Product
+
+Optical 
+
+- Eyewear Manufacturer [Optical](https://optical.base-chain.com/)
+
+
+## Contact
+
+- email: jack@base-chain.com
+
+
+
